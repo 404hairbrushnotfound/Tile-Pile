@@ -1,1 +1,1 @@
-Click the version of the game you want. You should see "
+Go to the version you want. Click "add. You should see "
